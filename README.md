@@ -7,3 +7,4 @@
   4) Урок 4 - https://kaznukz-my.sharepoint.com/:p:/g/personal/boranbayev_azamat_live_kaznu_kz/EVbCFdP8CfJOvR5H2GjVwvYBre2GBBh5Ag0FWygCOez09A?e=2DNK2F
   5) Урок 5 - https://kaznukz-my.sharepoint.com/:p:/g/personal/boranbayev_azamat_live_kaznu_kz/EStU0YFT44VPmEyxvln_tsABnNyMBqtyPr8HvY_L2R4MTg?e=mGtwdl
   6) Урок 6 - https://kaznukz-my.sharepoint.com/:p:/g/personal/boranbayev_azamat_live_kaznu_kz/Eestq2gg1-RIsLF6jAjQldgBNMMviDiEgbQV1sRchJAH7Q?e=ttLHvb
+  7) Урок 7 - https://kaznukz-my.sharepoint.com/:p:/g/personal/boranbayev_azamat_live_kaznu_kz/EdKtMmxSEtdNryg4rAng2R4BcytmK5JQHMaEsqFWsTuvOA?e=PcVmNi
